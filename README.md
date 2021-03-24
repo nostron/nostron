@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nostron
+- 👀 I’m interested in recruiting and photography.
+- 🌱 I’m currently learning how to create a simple game in Unity. 
+- 💞️ I’m looking to collaborate on anything gaming related. 
+- 📫 How to reach me by dropping me a DM. 
